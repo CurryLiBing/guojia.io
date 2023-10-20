@@ -1,2 +1,2 @@
 # guojia.io
-goddess
+guojia is my goddess!
